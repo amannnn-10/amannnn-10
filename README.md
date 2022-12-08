@@ -8,9 +8,13 @@
 
 - 🌱 I’m currently learning **everything 🕊**
 
+- 📈 My 2023 vision **Excel in coding , win a hackethon and take part in coding competitions**
+
+- 💬 Ask me about **anything and I'm ready to help🫱🏻‍🫲🏻**
+
 - 📫 How to reach me **amann.shrivastava@gmail.com**
 
-- ⚡ Fun fact **I love management, somewhat marketing and watching star wars😈**
+- ⚡ Fun fact **I love management, somewhat marketing and watching star wars**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
