@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **everything 🕊**
 
-- 📈 My 2023 vision is to **Excel in coding , win a hackethon and take part in coding competitions**
+- 📈 My 2023 vision is to **Excel in coding , win a hackathon and take part in coding competitions**
 
 - 💬 Ask me about **anything and I'm ready to help🫱🏻‍🫲🏻**
 
